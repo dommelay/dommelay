@@ -8,3 +8,4 @@ I am a Full-Stack Software Engineer with a background in Biopsychology, Neurosci
 
 ### Open to work!
 
+### Contact me melaydominique@gmail.com
