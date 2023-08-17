@@ -1,4 +1,4 @@
 ### Scientist | Engineer | Digital Creator | Model
-Full-Stack Developer
+Full-Stack Developer<br/>
 NYC 
 ## dommelaynyc@gmail.com
