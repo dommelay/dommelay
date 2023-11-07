@@ -1,3 +1,3 @@
-### Software Engineer & Scientist
+## Software Engineer & Scientist
 
-# dommelaynyc@gmail.com
+### dommelaynyc@gmail.com
